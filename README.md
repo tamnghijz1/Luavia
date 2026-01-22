@@ -2,7 +2,7 @@
 
 LÚAvia is a premium educational rice-growing kit designed for children. It bridges the gap between traditional Vietnamese wet-rice culture and a modern hands-on journey of nature discovery at home.
 
-"We use the humble rice plant to tell a beautiful story about culture and connection."
+
 
 ✨ Core Concept
 
