@@ -18,15 +18,16 @@ Cultural Connection: Bringing the spirit of the Mekong Delta countryside into mo
 
 
 
-👥 Behind the Brand
 
 LÚAvia was founded by a group of passionate students from the University of Transportation in Ho Chi Minh City (UTH). Our mission is to reconnect the next generation with their cultural roots and the miracles of nature.
 
 📞 Contact Information
 Email: info.luavia@gmail.com
 
-Website: tamnghijz1.github.io/Luavia
+Phone Number: +84 968 360 606
 
-Location: Ho Chi Minh City, Vietnam.
+Website: https://tamnghijz1.github.io/Luavia/
 
-Copyright © 2024 LÚAvia. Crafted with ❤️ for the next generation.
+
+
+
