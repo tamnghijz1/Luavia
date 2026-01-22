@@ -1,5 +1,3 @@
-Dưới đây là nội dung tệp README.md chuyên nghiệp cho dự án LÚAvia trên GitHub, được trình bày bằng tiếng Anh theo yêu cầu của bạn:
-
 🌾 LÚAvia | The Masterpiece Collection
 LÚAvia is a premium educational rice-growing kit designed for children. It bridges the gap between traditional Vietnamese wet-rice culture and a modern hands-on journey of nature discovery at home.
 
